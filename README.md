@@ -1,1 +1,1 @@
-# Dermatech-Posts Heprix Teknoloji A.Ş. bünyesinde yer alan Dermatech markası için banner, logo ve içerik araştırmaları yaptığım ve aynı zamanda şirketin kendi sosyal medya hesabı için de hazırladığım SEO hakkında bilgiler ektedir.
+#Dermatech-Posts Heprix Teknoloji A.Ş. bünyesinde yer alan Dermatech markası için banner, logo ve içerik araştırmaları yaptığım ve aynı zamanda şirketin kendi sosyal medya hesabı için de hazırladığım SEO hakkında bilgiler ektedir.
